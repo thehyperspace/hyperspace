@@ -1,5 +1,5 @@
 ## Resources
-An incomplete list to resources related to information, technology, and the internet that I have currently read.<br><br>
+An incomplete list to resources related to information, technology, and the internet that I have currently read, listened to, or watched.<br><br>
 
 **Readings**<br>
 * Adrian Daub. _What Tech Calls Thinking: An Inquiry into the Intellectual Bedrock of Silicon Valley_. New York: FSG Originals x Logic, 2020.<br>
