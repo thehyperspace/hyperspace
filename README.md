@@ -5,3 +5,8 @@
 
 ## Upcoming Projects
 *hyperweb* (in development)
+<br>
+<br>
+
+## Resources  
+[If you are looking for reading materials and what not...](resources.md)
