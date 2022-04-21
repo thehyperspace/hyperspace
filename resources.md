@@ -12,3 +12,15 @@ _*To be continually updated._
 * Jennifer Chan. "Notes on Post-Internet". [Link](https://www.academia.edu/7508373/Notes_on_Post_Internet)<br>
 * Marisa Olson, "Lost Not Found: The Circulation of Images in Digital Visual Culture," in WORDS WITHOUT PICTURES, 18 September 2008. [Link](https://www.academia.edu/26348235/_Lost_Not_Found_The_Circulation_of_Images_in_Digital_Visual_Culture_from_Words_Without_Pictures)<br>
 * Michael Buckland. *Information and Society*. Massachusetts: The MIT Press, 2017.<br>
+
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+© 2022. **hyperspace** | contact.hyperspace@gmail.com
