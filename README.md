@@ -10,3 +10,14 @@
 
 ## Resources  
 [If you are looking for reading materials and what not...](resources.md)
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+© 2022. **hyperspace** | contact.hyperspace@gmail.com
